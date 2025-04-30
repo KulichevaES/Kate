@@ -6,4 +6,4 @@
 
 В свободное время я люблю гулять, а именно ходить в горы, увлекаюсь бегом и обожаю читать. Не представляю жизни без своих друзей и семьи.
 
-![Это я](https://drive.google.com/file/d/1Qp8d0bVNgO8VueNO_bs7X7EO2ssV4lby/view?usp=sharing)
+![Это я](https://vk.com/kulicheva_es?z=photo5453141_457239769%2Falbum5453141_0%2Frev)
